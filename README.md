@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @anewvauve
 - 👀 I'm currently in my 3rd year of BS, at IISER- kolkata
-- 🌱 I’m interested in geological data and survey, disaster management, and rocks and fossils!
+- 🌱 I’m interested in earthquakes(also very afraid of them), disaster management, and rocks and fossils!
 - 💞 I play the piano as well, and I'm quite passionate about aquariums :)
 - 📫 email- ad22ms136@iiserkol.ac.in 
 - (Do you like the earth?)
